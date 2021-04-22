@@ -10,3 +10,7 @@ saya bingung mau nulis apa?
 
 # repo ini keren banget dong
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+
+
+ahahahahahah nyoba pull req lord
+
