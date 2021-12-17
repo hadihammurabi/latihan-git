@@ -14,3 +14,5 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 
 ahahahahahah nyoba pull req lord
 
+
+# Absen dong wkwk
